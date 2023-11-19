@@ -4,6 +4,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=hahy2329&label=Profile%20views&color=0e75b6&style=flat" alt="hahy2329" /> </p>
 
 - 📫 How to reach me **gkswntjr2329@gmail.com**
+- 🔳 How to reach me https://fresh-picture-108.notion.site/782ae91cea564d2caeda4f0295e640d7?pvs=4
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
